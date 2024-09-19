@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yportfolio
+- 👋 Hi, I’m Ye
 - 📫 How to reach me with the emil address: wangyecv@gmail.com
 
 <!---
